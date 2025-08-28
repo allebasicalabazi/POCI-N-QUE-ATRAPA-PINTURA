@@ -1,2 +1,1 @@
-# POCI-N-QUE-ATRAPA-PINTURA
-vesión pro max ultra hd
+# Trex_Etapa_0
